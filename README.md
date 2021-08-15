@@ -1,0 +1,1 @@
+# picchi_full_responsive
